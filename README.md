@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **poojachaturvedi480@gmail.com.**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1AwSuIaT8BpcrFaMJCqBjrvh8PFZ3CTiQ/edit#bookmark=id.gjdgxs](https://docs.google.com/document/d/1AwSuIaT8BpcrFaMJCqBjrvh8PFZ3CTiQ/edit#bookmark=id.gjdgxs)
-
 - ⚡ Fun fact **I love writing on Quora and medium.**
 
 ### Blogs posts
