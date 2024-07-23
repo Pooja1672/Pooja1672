@@ -15,8 +15,6 @@
 
 - 💬 Ask me about **react, JS.**
 
-- 📫 How to reach me **poojachaturvedi480@gmail.com.**
-
 - ⚡ Fun fact **I love writing on Quora and medium.**
 
 ### Blogs posts
